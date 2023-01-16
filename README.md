@@ -1,2 +1,0 @@
-# anshukrsingh.github.io
-page
